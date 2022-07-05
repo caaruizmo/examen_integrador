@@ -5,3 +5,4 @@ Angie Lorena Galindo Morales
 Juan Carlos Molina
 Carlos Ruiz
 
+Grupo 2
